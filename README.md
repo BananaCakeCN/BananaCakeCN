@@ -1,4 +1,4 @@
-# 蕉饼的另一个Github[帐号](https://github.com/BananaCakeComputer/BananaCakeComputer)
+# 蕉饼的另一个Github[帐号](https://github.com/BananaCakeComputer)
 
 多一个账号没有坏处
 
